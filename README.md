@@ -1,1 +1,0 @@
-# RD-Data-Takehome-Dmytro-Vynnyk
